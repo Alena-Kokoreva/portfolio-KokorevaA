@@ -39,3 +39,11 @@
 </ol>
 
 
+
+> <a href="https://docs.google.com/spreadsheets/d/1W-H4S2eVg3I6s8uSrOtbWPkIfUaWgx1f/edit#gid=1333755390">Ссылка на проект</a>
+ 
+
+## Контактная информация
+- Email: aosipovva@gmail.com
+
+
